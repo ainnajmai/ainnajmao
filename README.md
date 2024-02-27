@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ainnajmao
 - 👀 I’m interested in (idk bruh)
-- 🌱 I’m currently learning excel coding
+- 🌱 I’m currently learning excel coding n cpp
 - 💞️ I’m looking to collaborate on (bch put me on spaceX)
 - 📫 How to reach me [ainnajma2004@gmail.com]
 
